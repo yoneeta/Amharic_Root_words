@@ -1,0 +1,1 @@
+# Amharic_Root_words
